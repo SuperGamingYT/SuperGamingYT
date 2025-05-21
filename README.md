@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SuperGamingYT
 - 👀 I’m interested in Minecraft Mapmaking and Datapacks
-- 🌱 I’m currently learning every new thing every Wednesday
+- 🌱 I’m currently learning every new thing every ~~Wednesday~~ Tuesday
 - 📫 How to reach me `supergamingyt_` on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have a world record speedrun on Cities Skylines
